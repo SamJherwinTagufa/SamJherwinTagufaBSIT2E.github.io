@@ -1,1 +1,0 @@
-# SamJherwinTagufaBSIT2E.github.io
